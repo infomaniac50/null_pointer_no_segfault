@@ -17,3 +17,8 @@ or
 >Chuck Norris hit a 475+ foot home run
 
 I'm thinking the latter.
+
+**Update**:
+>Chuck Norris once hit a 475-foot home run into the upper deck at Yankee Stadium. He was bunting.
+
+http://www.chucknorrisfacts.com/node/7597
